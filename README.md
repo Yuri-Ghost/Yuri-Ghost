@@ -11,3 +11,5 @@
 🩺 Vou cursar Medicina futuramente.
 
 ✝️ Sou Cristão.
+
+![](https://media.tenor.com/XGk_Adcgko4AAAAC/satoru-gojo-toji-fushiguro.gifhttps://media.tenor.com/XGk_Adcgko4AAAAC/satoru-gojo-toji-fushiguro.gif)
